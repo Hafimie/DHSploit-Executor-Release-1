@@ -1,1 +1,1 @@
-Download as a zip, please.
+Download as a zip, if you want
